@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **bhanudevaguptapu4@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1cr5Wt_zYb-mhfv9ncWqo775-f7pRptEk/edit?usp=sharing&ouid=108121277217709250375&rtpof=true&sd=true](https://docs.google.com/document/d/1cr5Wt_zYb-mhfv9ncWqo775-f7pRptEk/edit?usp=sharing&ouid=108121277217709250375&rtpof=true&sd=true)
 
 - ⚡ Fun fact **I think I am Funny**
 
